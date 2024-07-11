@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **Programming, Web Development**
 
-- 🤝 I’m looking for help with **business.hakann@gmail.com**
+- 🤝 Contact Me **business.hakann@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
